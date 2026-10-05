@@ -1,2 +1,2 @@
-Differnt Work
+Different Work
 Coding
